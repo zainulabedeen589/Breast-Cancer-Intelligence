@@ -239,7 +239,7 @@ Always consult certified healthcare professionals.
 
 **Zainul Abedeen**
 
-GitHub: [https://github.com/zainulabedeen589](https://github.com/zainulabedeen589) \
+GitHub: [https://github.com/zainulabedeen589](https://github.com/zainulabedeen589) <br>
 LinkedIn: [https://linkedin.com/in/zainulabedeen589](https://linkedin.com/in/zainulabedeen589)
 
 ---
